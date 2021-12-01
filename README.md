@@ -1,0 +1,4 @@
+- 👋 Hi, I am @kafa13
+- 😊 I´m lively
+- 🤓 I´m student of MCJ
+- 🥰 I´m interest in learning more about technology.
